@@ -19,14 +19,14 @@ New Movie Download
 
 HD Movie Download 
 
-download movies in hindi
+Download Movies in Hindi
 
-bollywood movie download
+Bollywood Movie Download
 
-bollywood movie download site
+Bollywood Movie Download Site
 
-hindi movie download site
+Hindi Movie Download Site
 
-hindi movie full hd
+Hindi Movie Full HD
 
-full hd movie hindi
+Full HD Movie Hindi
